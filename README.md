@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...Decentralized Careers
 - 📫 How to reach me ...7y24n1z3@gmail.com
 - 😄 Pronouns: ...That/It/Thing
-- ⚡ Fun fact: ...Cunning Linguist
+- ⚡ Fun fact: ...Master Debater & Cunning Linguist
 
 <!---
 7y24n1z3/7y24n1z3 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
