@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @7y24n1z3
-- 👀 I’m interested in ...Bitcoin & Gaming
-- 🌱 I’m currently learning ...CryptoCurrency
+- 👋 Hi, I’m Thai "7y24n1z3" Tran
+- 👀 I’m interested in ...Cryptocurrencies & Gaming
+- 🌱 I’m currently learning ...How to Code
 - 💞️ I’m looking to collaborate on ...Decentralized Careers
 - 📫 How to reach me ...7y24n1z3@gmail.com
-- 😄 Pronouns: ...That/It/Thing
+- 😄 Pronouns: ...Thing/It/They
 - ⚡ Fun fact: ...Master Debater & Cunning Linguist
 
 <!---
