@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...How to Code
 - 💞️ I’m looking to collaborate on ...Decentralized Careers
 - 📫 How to reach me ...7y24n1z3@gmail.com
-- 😄 Pronouns: ...Thing/It/They
+- 😄 Pronouns: ...That/Thing/It
 - ⚡ Fun fact: ...Master Debater & Cunning Linguist
 
 <!---
