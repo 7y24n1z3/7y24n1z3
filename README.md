@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Thai "7y24n1z3" Tran
+- 👋 Hi, I’m Tiberius "7y24n1z3" Tran
 - 👀 I’m interested in ...Cryptocurrencies & Gaming
 - 🌱 I’m currently learning ...How to Code
 - 💞️ I’m looking to collaborate on ...Decentralized Careers
